@@ -1,5 +1,3 @@
-# More abt me!
-
 
  𓏵 ⠀⠀﹒ ⠀⠀Lucien⠀⠀⠀ノ⠀⠀⠀Magnus⠀⠀⠀  𓂂  
 ⠀He  | Him⠀⠀⠀⸺⠀⠀⠀⠀Trans male woahh⠀ <img width="50" height="50" alt="tumblr_c5294360cb20be571309d1768b2c6ecb_144f35a9_500" src="https://github.com/user-attachments/assets/fa9525e2-b9b6-4c3f-89b1-556bfd6fd467" />   ⠀⠀𓎠   
